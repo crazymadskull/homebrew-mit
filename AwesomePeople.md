@@ -5,4 +5,4 @@ Pranav
 darshana
 kaustubh tulaskar
 LUCIFER0x7, We all are awesome developer's 
-aarya
+aarya aurangabad 19.8700826,75.235161,12z
